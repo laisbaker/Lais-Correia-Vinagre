@@ -1,2 +1,2 @@
-# Lais-Correia-Vinagre
+# ATIVIDADE EM GRUPO
 atividade avaliativa primeiro trimestre
